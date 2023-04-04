@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Marcos-cc
-- 👀 I’m interested in Machine Learning
-- 🌱 I’m currently learning nothing
+- 👀 I’m interested in Tanking
+- 🌱 I am struggling to be positive
 - 📫 How to reach me 1650617115@qq.com
 
 <!---
